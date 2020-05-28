@@ -1,1 +1,1 @@
-# sarahmacgregor.github.io
+Map of My Favorite Destionations
